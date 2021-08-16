@@ -32,3 +32,5 @@
 
 ### 16.卫生要每天按时打扫，可以选择在下午上班后倒垃圾
 
+[触电急救措施](https://www.bilibili.com/video/BV12E41157vd?from=search&seid=18061454998212882677)
+
